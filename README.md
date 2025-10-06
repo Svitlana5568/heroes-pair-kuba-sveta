@@ -1,1 +1,0 @@
-# heroes-pair-kuba-sveta
